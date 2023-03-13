@@ -1,4 +1,4 @@
-##  😁
+## Todos que desejam estar aqui são muito bem-vindos!  😁
 
  <div>
    <a href="https://github.com/MiguelSteinmetz">
